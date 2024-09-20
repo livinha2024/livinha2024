@@ -1,0 +1,7 @@
+- Livia Vanzela
+- 15 anos
+- pensamento computacional
+- 1 ano A
+- gosto de dormir 😴
+- gosto de mecher no celular
+- gosto de assistir filmes e series
